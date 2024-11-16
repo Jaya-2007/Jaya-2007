@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...IT companies communication
 - 🌱 I’m currently learning . computer science..
 - 💞️ I’m looking to collaborate on ... IT world
-- 📫 How to reach me ...@hydrabad
+- 📫 How to reach me ...@ linkedin 
 - 😄 Pronouns: .. Jayalaxmi.
 - ⚡ Fun fact: ...
 
